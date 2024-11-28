@@ -1,1 +1,1 @@
-## 1. Utilizando Write for me en ChatGPT Puedes ver el Informe escrito en: [[Informe Estadístico sobre la Educación en Argentina](**https://chatgpt.com/share/67487942-93a4-8007-af2d-f4c894c00200)**]
+## 1. Utilizando Write for me en ChatGPT Puedes ver el Informe escrito en: [[Informe Estadístico sobre la Educación en Argentina](**https://chatgpt.com/share/6748e158-0c9c-8007-86d5-fe1621643330)**]
